@@ -11,4 +11,4 @@ Adicione seu nome na lista abaixo para participar:
 ###Participantes:
 
     * Amanda Carvalho de Oliveira (Amanda Jones)
-    *
+    * Leticia Cavalcanti Andrade de Alcantara (Leticia Andrade)
